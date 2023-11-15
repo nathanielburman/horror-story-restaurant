@@ -1,6 +1,6 @@
 # horror-story-restaurant
 
-Title: Comfort Food
+Title: Comfort Food,
 Whats more comfortable than service with a smile?
 
 Plot: Evil house movies from hollywood are getting really fucking retarded. White women are literally scared of their ... home. So to change that up a notch becuase I can't stand these people anymore, I had to make the resturant a source of pure evil now.
